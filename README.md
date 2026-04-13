@@ -6,6 +6,7 @@ Huge respect to the 40 researchers who stood out this year. With the amount of n
 
 Some quick stats:
 
+
 📊 4,279 submissions
 
 🌍 15+ regions
