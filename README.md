@@ -1,3 +1,17 @@
+💰 $33,000 distributed (upgraded from the original $30K pool)
+
+If you’re curious what actually won — or want to read through the research itself — the full leaderboard and submissions are here:
+👉 https://scholar2025.sosovalue.com/
+
+From Research to Earn: Why We’re Building SoDEX
+The competition is only part of the picture.
+
+We’re using SoSoScholar as the foundation for something bigger: SoDEX, which we see as a “New Ark” for crypto research and value creation.
+
+Instead of the usual trading-fee rebate or influencer-driven models, the goal is to align investors, researchers, and the platform in a way that’s actually sustainable.
+
+The guiding idea is simple:
+“Love one another inclusively, benefit one another mutually.”
 # nguyenteo
 nguyenteo# nguyenteo
 nguyenteo
