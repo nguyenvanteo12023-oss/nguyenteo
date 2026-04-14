@@ -2,6 +2,24 @@
 nguyenteo# nguyenteo
 nguyenteo
 The results for #SoSoScholar 2025 are officially out.
+# nguyenteo
+nguyenteo# nguyenteo
+nguyenteo
+The results for #SoSoScholar 2025 are officially out.
+
+Huge respect to the 40 researchers who stood out this year. With the amount of noise in crypto right now, solid research matters more than ever — and these folks delivered real signal.
+
+Some quick stats:
+
+# nguyenteo
+nguyenteo# nguyenteo
+nguyenteo
+The results for #SoSoScholar 2025 are officially out.
+
+Huge respect to the 40 researchers who stood out this year. With the amount of noise in crypto right now, solid research matters more than ever — and these folks delivered real signal.
+
+Some quick stats:
+
 
 Huge respect to the 40 researchers who stood out this year. With the amount of noise in crypto right now, solid research matters more than ever — and these folks delivered real signal.
 
