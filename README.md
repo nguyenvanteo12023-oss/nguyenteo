@@ -6,6 +6,7 @@ If you’re curious what actually won — or want to read through the research i
 From Research to Earn: Why We’re Building SoDEX
 The competition is only part of the picture.
 
+
 We’re using SoSoScholar as the foundation for something bigger: SoDEX, which we see as a “New Ark” for crypto research and value creation.
 
 
