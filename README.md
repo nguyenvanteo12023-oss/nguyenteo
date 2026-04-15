@@ -8,6 +8,7 @@ The competition is only part of the picture.
 
 We’re using SoSoScholar as the foundation for something bigger: SoDEX, which we see as a “New Ark” for crypto research and value creation.
 
+
 Instead of the usual trading-fee rebate or influencer-driven models, the goal is to align investors, researchers, and the platform in a way that’s actually sustainable.
 
 The guiding idea is simple:
