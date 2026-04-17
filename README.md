@@ -2,6 +2,16 @@
 💰 $33,000 distributed (upgraded from the original $30K pool)
 💰 $33,000 distributed (upgraded from the original $30K pool)
 💰 $33,000 distributed (upgraded from the original $30K pool)
+💰 $33,000 distributed (upgraded from the original $30K pool)
+💰 $33,000 distributed (upgraded from the original $30K pool)
+💰 $33,000 distributed (upgraded from the original $30K pool)
+💰 $33,000 distributed (upgraded from the original $30K pool)
+
+If you’re curious what actually won — or want to read through the research itself — the full leaderboard and submissions are here:
+👉 https://scholar2025.sosovalue.com/
+
+From Research to Earn: Why We’re Building SoDEX
+The competition is only part of the picture.
 
 If you’re curious what actually won — or want to read through the research itself — the full leaderboard and submissions are here:
 👉 https://scholar2025.sosovalue.com/
